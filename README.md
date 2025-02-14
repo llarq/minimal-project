@@ -1,8 +1,1 @@
 # minimal-project
-
-
-
-
-
-
-# skibidi-toilet
